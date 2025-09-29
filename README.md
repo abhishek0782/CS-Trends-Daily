@@ -1,0 +1,1 @@
+# CS-Trends-Daily
